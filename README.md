@@ -1,4 +1,4 @@
-# Hi, I'm Miguel QuiAIos 👋
+# Hi, I'm Miguel Quiaios 👋
 
 ## 🚀 About Me
 
